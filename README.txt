@@ -47,14 +47,4 @@ Scroll down
 
 
 
-
-
-
-
-
-
-
-
-
-
 lol nerd
